@@ -1,1 +1,2 @@
 # albiinj
+i hate niggers
